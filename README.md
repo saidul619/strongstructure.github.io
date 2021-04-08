@@ -1,1 +1,0 @@
-# strongstructure.github.io
